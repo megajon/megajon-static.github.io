@@ -1,0 +1,1 @@
+# megajon-static.github.io
